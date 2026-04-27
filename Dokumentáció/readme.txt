@@ -1,0 +1,1 @@
+Ugyanaz a kettő, csak más formátumban.
